@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ph.D student at Temple University 🏫🖥️<br>Currently working on Evolutionary and Population Genomics on Plasmodium spp.🧬🦠 <br>Background in Molecular Biology and Parasite Genetics 👨🏻‍🔬🦟
+Ph.D student at Temple University 🏫🖥️<br>Currently working on Evolutionary and Population Genomics in Plasmodium spp.🧬🦠 <br>Background in Molecular Biology and Parasite Genetics 👨🏻‍🔬🦟
 
 
 ## 🌐 Socials:
